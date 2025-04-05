@@ -1,4 +1,4 @@
-![FuckElon](https://raw.githubusercontent.com/VibeGiggles/DOGEbite/refs/heads/main/FuckThisGuy2.jpg?token=GHSAT0AAAAAADBWMTZFY326S3GKWZYAITKKZ7QS4JA)
+![FuckElon](https://raw.githubusercontent.com/VibeGiggles/DOGEbite/refs/heads/main/FuckThisGuy2.jpg)
 
 ## Tesla makes it *convenient* and *easy* to find any charging location! 
 
